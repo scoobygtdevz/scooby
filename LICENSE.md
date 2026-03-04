@@ -1,4 +1,4 @@
-# 🎮 Scooby GTA Mod Menu — Best FREE Gta 5 Online [Legacy/Enhanced] Mod Menu 2026
+# Scooby GTA Mod Menu — Best FREE Gta 5 Online [Legacy/Enhanced] Mod Menu 2026
 
 🚀 **The most feature-rich, community-backed mod solution for GTA players in 2026.**
 
